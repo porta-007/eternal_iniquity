@@ -1,2 +1,2 @@
 # eternal_iniquity
-trying somethings out >>>
+not so usefull stuff  >>>
